@@ -1,4 +1,4 @@
-**Report A Scam Now
+**Report A Scam Now**
 
 
 [Scamshield](https://www.scamshield.org.sg/report/)
